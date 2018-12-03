@@ -17,3 +17,5 @@ else
   fi
 fi
 [i `want to contribute but i a dont know if i a am writing in the rite place
+shallow breathing this moment only nt doing it wrong im doing the best i can 
+all is well 
