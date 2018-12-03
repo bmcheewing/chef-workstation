@@ -23,3 +23,10 @@ gold is making a move in this moment thers only this i realiz what im suppode to
 must study how to use computer 
 overlooked unoticed all is well 
 light work feel it 
+"unsupervised learning"
+exploration agrred with noone 
+fantastic now what 
+strange new atms
+blow it uo into a trlion stars 
+"EPIC" 201613023 here goes nothung find it 
+lets solve a problem the razors edge no dress rehersals 
